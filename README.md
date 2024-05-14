@@ -4,6 +4,4 @@
 - 💞️ eu gosto de assistir series ou filmes policiais e de suspense 
 - 🛸 meus pronomes são: ele/dele 
 - ⚡ fato engraçado: quando eu rio muito eu começo a perder a força e cair no chão kkkkk
-
-
-<img src="https://pin.it/gogI2scyi">
+<img src="https://i0.wp.com/ovicio.com.br/wp-content/uploads/2024/02/20240219-din-djarin-e-grogu-em-the-mandalorian.jpg?resize=555%2C555&ssl=1">
