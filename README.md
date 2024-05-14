@@ -6,3 +6,4 @@
 - ⚡ fato engraçado: quando eu rio muito eu começo a perder a força e cair no chão kkkkk
 
 
+<img src="https://pin.it/gogI2scyi">
